@@ -7,4 +7,4 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/KhaledIsCool?tab=repositories](https://github.com/KhaledIsCool?tab=repositories)
 
-- 📫 How to reach me **eKhaledIsCool#6969**
+- 📫 Reach  me at Discord with my ID **1017754263629353062**
